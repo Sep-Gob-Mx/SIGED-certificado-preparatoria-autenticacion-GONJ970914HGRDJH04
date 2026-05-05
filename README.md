@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GONJ970914HGRDJH04
+GONJ970914HGRDJH04
